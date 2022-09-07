@@ -1,0 +1,2 @@
+# sinavortalama
+aravefinalsinavininortalamasi
